@@ -12,3 +12,5 @@
   <a href = "mailto:analiviacandido100@gmail.com"><img src="https://img.shields.io/badge/-Gmail-%23333?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"></a>
   
 </div>
+
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=2rfvo0891u39lif1b259esupr&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&bar_color=a17c4f)](https://github.com/kittinan/spotify-github-profile)
