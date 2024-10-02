@@ -1,6 +1,6 @@
 ### oi ! ! meu nome é lívia ⁠｡ﾟ⁠+⁠ . ✧
 
-- 🧸 estou cursando meu terceiro semestre em informática 
+- 🧸 atualmente cursando meu quarto semestre em informática 
 - 🦴 estudando linguagens como python, java e javascript 
 
 · · ༶  others  ! !
