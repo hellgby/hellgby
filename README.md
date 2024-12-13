@@ -1,7 +1,7 @@
 ### oi ! ! meu nome é lívia ⁠｡ﾟ⁠+⁠ . ✧
 
 - 🧸 atualmente cursando meu quarto semestre em informática 
-- 🦴 estudando linguagens como swift, python, java e javascript 
+- 🦴 programar? hell nah.. #timedesign 
 
 · · ༶  others  ! !
 - ✉️ me contate em analiviacandido100@gmail.com
