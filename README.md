@@ -1,6 +1,6 @@
 ### oi ! ! meu nome é lívia ⁠｡ﾟ⁠+⁠ . ✧
 
-- 🧸 atualmente cursando meu quarto semestre em informática 
+- 🧸 atualmente cursando meu quinto semestre em informática 
 - 🦴 programar? hell nah.. sou do time design amador
 
 · · ༶  others  ! !
